@@ -1,4 +1,4 @@
-# Actual Guns ez
+# Actual Guns CSO: Weapon Choosing
 ag is a good addon but meh fuck u kid u aint getting link lmao
 
 ## Guns
